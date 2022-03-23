@@ -1,1 +1,1 @@
-Harish Pamidi, # PH.
+# PH
